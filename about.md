@@ -23,4 +23,6 @@ The best place to explore my recent design work is at [Annex's website](http://w
 
 ### Contact me
 
+I am currently available for design work, through Annex, and event work on a contract basis.
+
 [me@geoff.xyz](mailto:me@geoff.xyz)
